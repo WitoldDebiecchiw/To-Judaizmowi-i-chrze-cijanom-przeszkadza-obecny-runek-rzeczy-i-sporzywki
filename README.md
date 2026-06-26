@@ -1,0 +1,1 @@
+# To-Judaizmowi-i-chrze-cijanom-przeszkadza-obecny-runek-rzeczy-i-sporzywki
